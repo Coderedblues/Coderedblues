@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Coderedblues
+- 👀 I’m interesting?
+- 🌱 I’m currently learning 
+- 💞️ I’m looking good
+- 📫 How to reach me ? Send me a message from the universe
